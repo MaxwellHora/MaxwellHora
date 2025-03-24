@@ -4,7 +4,7 @@ Conheça meu perfil no Linkedin - Maxwell-Hora
 
 
 
-💼 Eu trabalho como Analista de Teste (Quallity Assurance);
+💼 Atuo como Analista de Teste (Quallity Assurance);
 
 🎓 Formado em Analise e Desenvolvimento de Sistemas no Centro Universitário FMU;
 
