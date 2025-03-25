@@ -1,4 +1,4 @@
-## Seja Bem-vendo(a) aao meu GitHub - @MaxwellHora👋
+## Seja Bem-vindo(a) ao meu GitHub - @MaxwellHora👋
 
 Conheça meu perfil no Linkedin - Maxwell-Hora
 
